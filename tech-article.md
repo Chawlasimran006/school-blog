@@ -1,0 +1,1 @@
+AI- powered assistents like ChatGPT, Siri, and Google Assistant are transforming how we interact with technology. With advancements in natural language processing, these assistents can understand and respond more accurately, making tasks like scheduling, searching, and even coding and efficient
